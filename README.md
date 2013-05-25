@@ -19,5 +19,7 @@ caoliu
 
 <a href="http://123.8518.com/index.php?u=95650" title="草榴社区">地址 6</a>
 
+<a href="https://code.google.com/p/caoliushequ-t66y/" title="草榴社区">地址 7</a>
+
 草榴社区永久地址（翻墙,记得回家的最后一条路）： <a href="http://t66y.com/index.php?u=95650" title="草榴社区">t66y.com</a>,
 暂时不提供邀请码,草榴邀请码,草榴社区邀请码,草榴社區邀請碼,邀請碼</b>
