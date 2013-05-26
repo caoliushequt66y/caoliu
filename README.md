@@ -17,7 +17,7 @@ caoliu
 
 <a href="http://5.yao.cl/index.php?u=95650" title="草榴社区">地址 5</a>
 
-<a href="http://123.8518.com/index.php?u=95650" title="草榴社区">地址 6</a>
+<a href="http://5.yao.cl/index.php?u=95650" title="草榴社区">地址 6</a>
 
 <a href="https://code.google.com/p/caoliushequ-t66y/" title="草榴社区">地址 7</a>
 
