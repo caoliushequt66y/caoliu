@@ -13,7 +13,7 @@ caoliu
 
 <a href="http://184.154.128.244/index.php?u=95650" title="草榴社区">地址 2</a>
 
-<a href="http://love1024.tk/index.php?u=95650" title="草榴社區">地址 3</a>
+<a href="http://hi1024.tk/index.php?u=95650" title="草榴社區">地址 3</a>
 
 <a href="http://cl.yyq.im/index.php?u=95650" title="草榴社区">地址 4</a>
 
